@@ -1,0 +1,1 @@
+# pariwisewu.github.io
